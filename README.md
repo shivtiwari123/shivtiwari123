@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello. I'm Shiv. I'm a pre-final year student, majoring in CS. My interests lie with Big Data Analytics, ML and iOS App Development.<br>
+Hello. I'm Shiv. I'm a final year student, majoring in CS. My interests lie with Big Data Analytics, ML and iOS App Development.<br>
 
 
 ## 🌐 Socials:
