@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shivtiwari406@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1UfSHHnla0iDdpsxLSPeVL9sFbHXuqKcS/view?usp=sharing](https://drive.google.com/file/d/1UfSHHnla0iDdpsxLSPeVL9sFbHXuqKcS/view?usp=sharing)
+- 📄 Know about my experiences [here](https://shorturl.at/P6Y5r)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
